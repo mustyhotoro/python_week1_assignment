@@ -1,0 +1,1 @@
+Answer for the week 1 assignment 
